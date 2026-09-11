@@ -12,11 +12,25 @@
 
 [prns.page](https://en.pronouns.page/@KNIFEINMYSPINE)
 
-[crrd.co](https://vincent3737.carrd.co/)
-
-
 ‿︵‿︵‿︵‿︵‿︵‿︵
 
 
 fandom dni:
 anything yandere-centric, dandys world (iwec), hoyoverse, okegom, pressure, alfreds playhouse, fpe, and many more that i cannot list in fear that i can't remember. 
+
+<img width="800" height="402" alt="9E7955D8-7DC4-4C8C-9C29-01787B2C9D31" src="https://github.com/user-attachments/assets/bf000cc2-5560-4fab-9cc6-d789204c71a2" />
+
+‿︵‿︵‿︵‿︵‿︵‿︵
+
+byi : 
+
+My timezone is EST.
+
+i am a very dry or busy person because of school and marching band, so expect me to be drained or honestly not gaf about anything. i will try to keep my energy up, but if i cant, apologies.
+
+15+ int, -14 or over 20 iwec.
+
+i say slurs i can reclaim, obviously i will not say them if i am in public. that's just not right. 
+
+i type in lowercase majority of my time
+but sometimes my typing will be based on my mood.
