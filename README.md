@@ -35,4 +35,6 @@ i am a very dry or busy person because of school and marching band, so expect me
 i say slurs i can reclaim, obviously i will not say them if i am in public. that's just not right. 
 
 i type in lowercase majority of my time
-but sometimes my typing will be based on my mood.
+but sometimes my typing will be based on my mood.. 
+
+if i am roleplaying with you and i stop responding entirely for a long period of time to where I disconnect , i fell asleep. i apologize in advance for the times i do fall asleep.
