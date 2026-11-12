@@ -3,7 +3,8 @@
 ‿︵‿︵‿︵‿︵‿︵‿︵
 
 
-![1000005943](https://github.com/user-attachments/assets/ce80a6b9-4d5e-4b51-a1a8-e50343d5f114)
+<img width="734" height="245" alt="IMG_3938" src="https://github.com/user-attachments/assets/0999bc91-6f70-40f8-8871-6f5dc74e0b9f" />
+
 
 ‿︵‿︵‿︵‿︵‿︵‿︵
 
@@ -18,7 +19,7 @@
 
 
 fandom dni:
-anything yandere-centric, dandys world (iwec), hoyoverse, okegom, pressure, alfreds playhouse, fpe, and many more that i cannot list in fear that i can't remember. 
+anything yandere-centric, dandys world (iwec), hoyoverse, okegom, pressure, alfreds playhouse, fpe, the freak circus, forsaken (iwec), hellaverse (vivziepop), tadc (iwc).
 
 <img width="800" height="402" alt="9E7955D8-7DC4-4C8C-9C29-01787B2C9D31" src="https://github.com/user-attachments/assets/bf000cc2-5560-4fab-9cc6-d789204c71a2" />
 
@@ -32,9 +33,11 @@ i am a very dry or busy person because of school and marching band, so expect me
 
 15+ int, -14 or over 20 iwec.
 
-i say slurs i can reclaim, obviously i will not say them if i am in public. that's just not right. 
+i say slurs i can reclaim, obviously i will not say them if i am in roleplay, or in a server that doesn't allow them, that's just not right. 
 
 i type in lowercase majority of my time
 but sometimes my typing will be based on my mood.. 
 
 if i am roleplaying with you and i stop responding entirely for a long period of time to where I disconnect , i fell asleep. i apologize in advance for the times i do fall asleep.
+
+if you feel the need to shit on my interests when im expressing my joy about them, then you'll be blocked on sight. let people like what they want unless its heavily problematic.
