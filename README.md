@@ -21,8 +21,7 @@
 fandom dni:
 anything yandere-centric, dandys world (iwec), hoyoverse, okegom, pressure, alfreds playhouse, fpe, the freak circus, forsaken (iwec), hellaverse (vivziepop), tadc (iwc).
 
-<img width="1280" height="720" alt="867ABAA8-E2F0-4653-B0B6-884F6B94CEF9" src="https://github.com/user-attachments/assets/c0a98f29-2143-4fa2-8ccd-b9bc43c20621" />
-
+<img width="734" height="244" alt="IMG_3951" src="https://github.com/user-attachments/assets/fd10bb55-130b-4f79-be95-e17a7bd2e9af" />
 
 ‿︵‿︵‿︵‿︵‿︵‿︵
 
